@@ -45,7 +45,7 @@ Building real-world projects and starting freelance work in web development.
 
 ## 📬 Contact Me
 
-* Email: your email here
+* Email: lindoh190@gmail.com
 * Fiverr: (add later)
 
 ---
